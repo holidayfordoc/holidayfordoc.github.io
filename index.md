@@ -47,7 +47,7 @@ Unless he has undertaken the unlikely action of a legal name change, an action f
 
 Further investigation from Don and Diane into Bush's military history seems to clarify things a bit. 
 
-People discharged from military service receive a form number DD-214 which is kept on file by the federal government as proof of their service record. These records are not private, [anyone can pull them via a FOIA request](https://holidayfordoc.github.io/dd214.jpg){:target="_blank"}. Bush's DD-214 says he was in the navy for a whopping 72 days, and never graduated from boot camp.
+People discharged from military service receive a form number DD-214 which is kept on file by the federal government as proof of their service record. These records are not private, [anyone can pull them via a FOIA request](https://holidayfordoc.github.io/dd214.jpg){:target="_blank"}. Bush's DD-214 says he was in the U.S. Navy for a whopping 72 days, and never graduated from boot camp.
 
 A sample of the video Don has put together on Bush's false military claims is [here on Don's website](https://videos.extremesealexperience.com/movie_Phony-Navy-Seal-Of-The-Week-Dr-Richard-Orville-Bush-Allen-Texas-The-Dead-Horse-Kicker-Phony-Seal){:target="_blank"}.
 
