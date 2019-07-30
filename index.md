@@ -16,7 +16,7 @@ Bush's public [LinkedIn](https://www.linkedin.com/in/richard-bush-8377b58){:targ
 
 ## What about that Ph.D though?
 
-Bush claims to have a Ph.D from Columbia Pacific University in "Psychology: Health and Human Services."  There's just one problem...
+Bush claims to have a Ph.D from Columbia Pacific University in "Psychology: Health and Human Services."  There's just one problem:
 
 The state of California called Columbia Pacific University a "[giant scam... a diploma mill which has been preying on California consumers for too many years... The public is duped each time one of these worthless degrees is awarded](https://www.sfgate.com/education/article/Marin-Judge-Orders-University-in-Novato-To-Cease-2888658.php){:target="_blank"}" *([archive.org copy](https://web.archive.org/web/20190714210119/https://www.sfgate.com/education/article/Marin-Judge-Orders-University-in-Novato-To-Cease-2888658.php){:target="_blank"})*.  The state brought enforcement action against the school to forcibly shut it down in the mid 1990s.  All appeals were exhausted and it was forced closed by the state in 2000.  It was never accredited, so no degree from there could have ever qualified anyone for medical certification of any sort.
 
@@ -30,11 +30,11 @@ In any case, we can establish from all of this that it is highly unlikely that '
 
 ## What about his claim of being a former Navy SEAL?
 
-[In this address to the city council](https://youtu.be/vtMo865VoME?t=4240){:target="_blank"} Bush claims to be a former Navy SEAL, among other things. It seems that there's an entire industry involved in people claiming high-ranking military careers for the sake of civilian profit.  One (verifiable) former Navy SEAL, Don Shipley (interviewed [here](https://www.washingtonian.com/2015/08/30/if-youre-lying-about-being-a-navy-seal-veteran-don-shipley-will-catch-you/){:target="_blank"} in regard to the troublesome nature of exposing military frauds and individual privacy) has made the exposure of false military service claims a full time job.  I contacted him in regard to Richard Bush, and got the following response...
+[In this address to the city council](https://youtu.be/vtMo865VoME?t=4240){:target="_blank"} Bush claims to be a former Navy SEAL, among other things. It seems that there's an entire industry involved in people claiming high-ranking military careers for the sake of civilian profit.  One (verifiable) former Navy SEAL, Don Shipley (interviewed [here](https://www.washingtonian.com/2015/08/30/if-youre-lying-about-being-a-navy-seal-veteran-don-shipley-will-catch-you/){:target="_blank"} in regard to the troublesome nature of exposing military frauds and individual privacy) has made the exposure of false military service claims a full time job.  I contacted him in regard to Richard Bush, and got the following response:
 
 <blockquote>Sir,<br /><br />
 
-I greatly appreciate your interest in upholding the honor of the US Navy SEAL Teams, and your search for the TRUTH. My efforts to expose SEAL imposters are performed as a service to the public, and in honor of my fallen SEAL Teammates… men who truly earned the right to the title “US NAVY SEAL” but who are no longer able to stand forward in defense of their honor, their reputations, and their TEAMs.
+I greatly appreciate your interest in upholding the honor of the US Navy SEAL Teams, and your search for the TRUTH. My efforts to expose SEAL imposters are performed as a service to the public, and in honor of my fallen SEAL Teammates, men who truly earned the right to the title “US NAVY SEAL” but who are no longer able to stand forward in defense of their honor, their reputations, and their TEAMs.
 <br />
 <br />
 If the name you provided is spelled correctly, I do NOT find a listing in the SEAL Database (SEAL Teams, Underwater Demolition Teams and predecessor units from 1943 to the Present Day) for anyone named RICHARD BUSH. I have also examined possible alternate spellings, and names with similar pronunciations without finding any that appear to be applicable.
@@ -45,7 +45,7 @@ Unless he has undertaken the unlikely action of a legal name change, an action f
 
 [Here](https://holidayfordoc.github.io/seal-response.jpg){:target="_blank"} is a screenshot of the email response from Don's wife, Carol, who processes these verification requests against a database they maintain of present and former SEALs.
 
-Further investigation from Don and Diane into Bush's military history seems to clarify things a bit...  
+Further investigation from Don and Diane into Bush's military history seems to clarify things a bit. 
 
 He was in boot camp for 72 days, and never graduated.  People discharged from military service receive a form number DD-214 which is kept on file by the federal government as proof of their service record. These records are not private, [anyone can pull them via a FOIA request](https://holidayfordoc.github.io/dd214.jpg){:target="_blank"}. 
 
