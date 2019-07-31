@@ -51,7 +51,7 @@ A sample of the video Don has put together on Bush's false military claims is [h
 
 [Here](https://holidayfordoc.github.io/dd214-1.jpg){:target="_blank"} and [here](https://holidayfordoc.github.io/dd214-1.jpg){:target="_blank"} are copies of Bush's DD214 discharge form, showing the details of his military service.  72 days.  He never got out of boot camp.
 
-[Here](https://holidayfordoc.github.io/bush-shipley.mp4){:target="_blank"} is another excerpt from the video Don Shipley put togehter, featuring Bush for the last week of July, 2019 as the "Fake Navy SEAL of the Week" on his website, with the relevant council speech included.  Subscribers to Shipley's website can see the full video, which is over 12 minutes in length and includes a phone call with Bush.
+[Here](https://holidayfordoc.github.io/bush-shipley.mp4){:target="_blank"} (warning: NSFW language toward the end) is another excerpt from the video Don Shipley put togehter, featuring Bush for the last week of July, 2019 as the "Fake Navy SEAL of the Week" on his website, with the relevant council speech included.  Subscribers to Shipley's website can see the full video, which is over 12 minutes in length and includes a phone call with Bush.
 
 <br />
 <hr>
