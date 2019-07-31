@@ -18,15 +18,13 @@ Bush's public [LinkedIn](https://www.linkedin.com/in/richard-bush-8377b58){:targ
 
 Bush claims to have a Ph.D from Columbia Pacific University in "Psychology: Health and Human Services."  There's just one problem:
 
-The state of California called Columbia Pacific University a "[giant scam... a diploma mill which has been preying on California consumers for too many years... The public is duped each time one of these worthless degrees is awarded](https://www.sfgate.com/education/article/Marin-Judge-Orders-University-in-Novato-To-Cease-2888658.php){:target="_blank"}" *([archive.org copy](https://web.archive.org/web/20190714210119/https://www.sfgate.com/education/article/Marin-Judge-Orders-University-in-Novato-To-Cease-2888658.php){:target="_blank"})*.  The state brought enforcement action against the school to forcibly shut it down in the mid 1990s.  All appeals were exhausted and it was forced closed by the state in 2000.  It was never accredited, so no degree from there could have ever qualified anyone for medical certification of any sort.
+The state of California called Columbia Pacific University a "[giant scam... a diploma mill which has been preying on California consumers for too many years... The public is duped each time one of these worthless degrees is awarded](https://www.sfgate.com/education/article/Marin-Judge-Orders-University-in-Novato-To-Cease-2888658.php){:target="_blank"}" *([archive.org copy](https://web.archive.org/web/20190714210119/https://www.sfgate.com/education/article/Marin-Judge-Orders-University-in-Novato-To-Cease-2888658.php){:target="_blank"})*.  The state brought enforcement action against the school to forcibly shut it down in the mid 1990s.  All appeals were exhausted and it was forced closed by the state in 2000.  The school was never accredited.
 
 A [federal investigation into unqualified government employees](https://www.gao.gov/new.items/d04771t.pdf){:target="_blank"} also mentions Columbia Pacific University, and notes that: 
 
 > Employee #3, hired at NNSA in 2000, received a PhD in engineering administration in 1985 from Columbia Pacific University, an unaccredited school. He performed course work required for a PhD at George Washington University, a fully accredited school, but did not complete a dissertation. Employee #3 claims to have completed a dissertation for Columbia Pacific but did not attend classes or complete any coursework at that school. In December 1999, the Marin County Superior Court ordered Columbia Pacific University to cease operations within California. The court determined that Columbia Pacific failed to meet various requirements for issuing PhD degrees, awarded excessive credit based on life experience, and failed to employ duly qualified staff. 
 
 The consumer watchdog site Quackwatch, which is run by a real, verifiable medical doctor has quite a bit of information on this fake university and some of its dubious graduates [here](https://www.quackwatch.org/04ConsumerEducation/News/cpu.html){:target="_blank"}. Dr. Barrett's site lists three others who claim the same Ph.D as 'Dr.' Bush, one of which by the name of John Dovelos ironically turns up on Google arguing with other people about...  fake online universities.  [Devos appeared to be using his fake Ph.D from Columbia Pacific University to promote another fake university](https://www.degreeinfo.com/index.php?threads/st-regis-will-not-be-listed-by-unesco-international-handbook-of-universities.8678/page-2#post-81691){:target="_blank"}.
-
-In any case, we can establish from all of this that it is highly unlikely that 'Dr.' Richard Bush has the required credentials to take any medical certification licensing exam, and therefore has no business being in business, so to speak.
 
 ## What about his claim of being a former Navy SEAL?
 
@@ -51,6 +49,9 @@ People discharged from military service receive a form number DD-214 which is ke
 
 A sample of the video Don has put together on Bush's false military claims is [here on Don's website](https://videos.extremesealexperience.com/movie_Phony-Navy-Seal-Of-The-Week-Dr-Richard-Orville-Bush-Allen-Texas-The-Dead-Horse-Kicker-Phony-Seal){:target="_blank"}.
 
+[Here](https://holidayfordoc.github.io/dd214-1.jpg){:target="_blank"} and [here](https://holidayfordoc.github.io/dd214-1.jpg){:target="_blank"} are copies of Bush's DD214 discharge form, showing the details of his military service.  72 days.  He never got out of boot camp.
+
+[Here](https://holidayfordoc.github.io/bush-shipley.mp4){:target="_blank"} is an excerpt from the video Don Shipley put togehter, featuring Bush for the last week of July, 2019 as the "Fake Navy SEAL of the Week" on his website, with the relevant council speech included.  Subscribers to Shipley's website can see the full video, which is over 12 minutes in length and includes a phone call with Bush.
 
 <br />
 <hr>
