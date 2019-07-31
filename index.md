@@ -45,11 +45,11 @@ Unless he has undertaken the unlikely action of a legal name change, an action f
 
 Further investigation from Don and Diane into Bush's military history seems to clarify things a bit. 
 
-People discharged from military service receive a form number DD-214 which is kept on file by the federal government as proof of their service record. These records are not private, [anyone can pull them via a FOIA request](https://holidayfordoc.github.io/dd214.jpg){:target="_blank"}. Bush's DD-214 says he was in the U.S. Navy for a whopping 72 days, and never graduated from boot camp.
+People discharged from military service receive a form number DD-214 which is kept on file by the federal government as proof of their service record. These records are not private, [anyone can pull them via a FOIA request](https://holidayfordoc.github.io/dd214.jpg){:target="_blank"}. Bush's DD-214 says he was in the U.S. Navy for a whopping 72 days.
 
 A sample of the video Don has put together on Bush's false military claims is [here on Don's website](https://videos.extremesealexperience.com/movie_Phony-Navy-Seal-Of-The-Week-Dr-Richard-Orville-Bush-Allen-Texas-The-Dead-Horse-Kicker-Phony-Seal){:target="_blank"}.
 
-[Here](https://holidayfordoc.github.io/dd214-1.jpg){:target="_blank"} and [here](https://holidayfordoc.github.io/dd214-1.jpg){:target="_blank"} are copies of Bush's DD214 discharge form, showing the details of his military service.  72 days.  He never got out of boot camp.
+[Here](https://holidayfordoc.github.io/dd214-1.jpg){:target="_blank"} and [here](https://holidayfordoc.github.io/dd214-1.jpg){:target="_blank"} are copies of Bush's DD214 discharge form, showing the details of his military service. He never graduated from basic training.
 
 [Here](https://holidayfordoc.github.io/bush-shipley.mp4){:target="_blank"} (warning: NSFW language toward the end) is another excerpt from the video Don Shipley put togehter, featuring Bush for the last week of July, 2019 as the "Fake Navy SEAL of the Week" on his website, with the relevant council speech included.  Subscribers to Shipley's website can see the full video, which is over 12 minutes in length and includes a phone call with Bush.
 
