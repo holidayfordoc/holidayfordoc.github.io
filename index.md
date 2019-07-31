@@ -52,7 +52,6 @@ A sample of the video Don has put together on Bush's false military claims is [h
 
 [Here](https://holidayfordoc.github.io/dd214-1.jpg){:target="_blank"} and [here](https://holidayfordoc.github.io/dd214-1.jpg){:target="_blank"} are copies of Bush's DD214 discharge form, showing the details of his military service. He never graduated from basic training.
 
-[Here](https://holidayfordoc.github.io/bush-shipley.mp4){:target="_blank"} (warning: NSFW language toward the end) is another excerpt from a video Don Shipley put together, featuring Bush for the last week of July, 2019 as the "Fake Navy SEAL of the Week" on his website, with the relevant council speech included.  Subscribers to Shipley's website can see the full video, which is over 12 minutes in length and includes a phone call with Bush.
 
 <br />
 <hr>
