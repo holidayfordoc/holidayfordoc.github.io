@@ -50,7 +50,7 @@ People discharged from military service receive a form number DD-214 which is ke
 
 A sample of the video Don has put together on Bush's false military claims is [here on Don's website](https://videos.extremesealexperience.com/movie_Phony-Navy-Seal-Of-The-Week-Dr-Richard-Orville-Bush-Allen-Texas-The-Dead-Horse-Kicker-Phony-Seal){:target="_blank"}.
 
-[Here](https://holidayfordoc.github.io/dd214-1.jpg){:target="_blank"} and [here](https://holidayfordoc.github.io/dd214-1.jpg){:target="_blank"} are copies of Bush's DD214 discharge form, showing the details of his military service. He never graduated from basic training.
+[Here](https://holidayfordoc.github.io/dd214-1.jpg){:target="_blank"} and [here](https://holidayfordoc.github.io/dd214-2.jpg){:target="_blank"} are copies of Bush's DD214 discharge form, showing the details of his military service. He never graduated from basic training.
 
 
 <br />
