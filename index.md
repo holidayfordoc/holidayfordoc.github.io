@@ -44,7 +44,7 @@ Unless he has undertaken the unlikely action of a legal name change, an action f
 
 [Here](https://holidayfordoc.github.io/seal-response.jpg){:target="_blank"} is a screenshot of the email response from Don's wife, Carol, who processes these verification requests against a database they maintain of present and former SEALs.
 
-Further investigation from Don and Diane into Bush's military history seems to clarify things a bit. 
+Further investigation from Don's research into Bush's military history seems to clarify things a bit. 
 
 People discharged from military service receive a form number DD-214 which is kept on file by the federal government as proof of their service record. These records are not private, [anyone can pull them via a FOIA request](https://holidayfordoc.github.io/dd214.jpg){:target="_blank"}. Bush's DD-214 says he was in the U.S. Navy for a whopping 72 days.
 
